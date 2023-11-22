@@ -1,0 +1,2 @@
+# Uzmanhamit
+Teşekkürler 
